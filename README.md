@@ -1,1 +1,0 @@
-photo_by_abramov_174
